@@ -1,1 +1,1 @@
-# i just nu##ed on my d#wg
+no j*b applications pls
